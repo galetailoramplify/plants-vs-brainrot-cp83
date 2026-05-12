@@ -1,4 +1,4 @@
-#  
+#  plants vs brainrots vip Script is the best plants vs brainrots Script, featuring auto-collect and private server access. Safe and powerful for all
 
 
 
